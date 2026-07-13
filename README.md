@@ -1,3 +1,3 @@
 # source
-# СУРС ТОЙ САМОЙ ПРОГИ КОТОРАЯ БЫЛА СЛИТА В ТГК
-ТГК ОРИГИНАЛА - https://t.me/forgotten_bio
+# Archive source / free for use
+I am not responsible for the actions
